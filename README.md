@@ -5,4 +5,4 @@ Gender : Male
 Sexuality : IDK my settings are on default
 Pleasures : FOOOOOOOD
 
-That's all piece of ruled
+That's all piece of intellectual
