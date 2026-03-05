@@ -1,6 +1,6 @@
-I wanted to be a animator but I began to make coding stuff for normal people frfr.
+I animate and code cuz i feel like to.
 
-I use C# and mostly only C#. I would use Phyton after i finish learning C# (I think...).
+I consider myself as a game developer.
 
--Unity Begginer
+C# and Luau user (I use Unity and Roblox Studio)
 Discord: "greninjaswow"
